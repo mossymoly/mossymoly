@@ -1,0 +1,1 @@
+I like copying script
